@@ -1,4 +1,4 @@
-# 
+# Exclusivo dex sniper bot modelos para Mac OS | Melhor dex sniper bot modelos para PC Windows. Com estratégia de reversão à média e proteção MEV — otimizado para máximo desempenho em cada plataforma.
 
 
 
